@@ -1,6 +1,6 @@
-# Breakout Prop Discount Code INVEST 2026 – 2% OFF All Challenges
+# Breakout Prop Discount Code INVEST 2026 – 22% OFF All Challenges
 
-If you are looking for the best Breakout Prop discount code in 2026, you have found it. Use code **INVEST** and instantly save 2% on any Breakout Prop challenge account.
+If you are looking for the best Breakout Prop discount code in 2026, you have found it. Use code **INVEST** and instantly save 22% on any Breakout Prop challenge account.
 
 ---
 
@@ -16,7 +16,7 @@ What separates Breakout from the broader prop trading landscape is the execution
 
 Using the Breakout Prop discount code is simple. Head to the Breakout Prop website, choose your preferred evaluation format — 1-Step or 2-Step — and your account size, then proceed to checkout.
 
-You will find a field to enter a promo or discount code. Type **INVEST**, hit apply, and your total will drop by 2% instantly.
+You will find a field to enter a promo or discount code. Type **INVEST**, hit apply, and your total will drop by 22% instantly.
 
 No email sign-up, no surveys, no extra steps. A clean, instant saving available to traders worldwide.
 
@@ -27,7 +27,7 @@ No email sign-up, no surveys, no extra steps. A clean, instant saving available 
 Not all discount codes deliver real value — some are expired, region-locked, or tied to referral schemes with extra conditions. The code **INVEST** stands out because:
 
 - It is verified and working as of 2026
-- It delivers **2% OFF** — an instant saving on Breakout Prop's already competitively priced evaluation fees
+- It delivers **22% OFF** — an instant saving on Breakout Prop's already competitively priced evaluation fees
 - It applies to all challenge formats: 1-Step and 2-Step
 - It works across all account sizes from $5,000 to $100,000
 - No referral or third-party sign-up required
@@ -57,7 +57,7 @@ Breakout Prop has built a reputation as one of the most execution-transparent, p
 
 ## 🔓 Reduce Your Startup Cost with INVEST
 
-Breakout Prop evaluation fees start from just $55 for a $5,000 two-step account and scale up to $999 for the largest account sizes — already among the most competitively structured fee ranges in the crypto prop trading space relative to the capital allocation, execution quality, and payout reliability on offer. With the discount code **INVEST**, you reduce that already accessible upfront cost by a further 2%, lowering the financial barrier to entering a real-exchange-execution crypto prop environment where every fill is backed by tier-one exchange liquidity, every payout is processed in USDC without delay, and the scaling path reaches $2,000,000 for traders who build a consistent funded track record.
+Breakout Prop evaluation fees start from just $55 for a $5,000 two-step account and scale up to $999 for the largest account sizes — already among the most competitively structured fee ranges in the crypto prop trading space relative to the capital allocation, execution quality, and payout reliability on offer. With the discount code **INVEST**, you reduce that already accessible upfront cost by a further 22%, lowering the financial barrier to entering a real-exchange-execution crypto prop environment where every fill is backed by tier-one exchange liquidity, every payout is processed in USDC without delay, and the scaling path reaches $2,000,000 for traders who build a consistent funded track record.
 
 Lower upfront cost means a reduced financial barrier to entry, a cleaner mindset approaching the no-time-limit evaluation at your natural pace, and more of your capital preserved for the disciplined risk management that Breakout's rule structure is designed to reward with on-demand daily USDC payouts and a profit split that reaches 90%.
 
@@ -79,7 +79,7 @@ Lower upfront cost means a reduced financial barrier to entry, a cleaner mindset
 | Field | Details |
 |-------|---------|
 | Active Code | **INVEST** |
-| Discount | **2% OFF** |
+| Discount | **22% OFF** |
 | Valid for | All challenge types (1-Step, 2-Step) · All sizes ($5K–$100K) |
 | Status | ✅ Verified & Working 2026 |
 
@@ -87,4 +87,4 @@ Lower upfront cost means a reduced financial barrier to entry, a cleaner mindset
 
 👉 Head to Breakout Prop, choose your challenge, and use code **INVEST** at checkout.
 
-Start your funded crypto trading journey today — and save 2% while you're at it.
+Start your funded crypto trading journey today — and save 22% while you're at it.
