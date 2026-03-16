@@ -87,4 +87,4 @@ Lower upfront cost means a reduced financial barrier to entry, a cleaner mindset
 
 👉 Head to Breakout Prop, choose your challenge, and use code **INVEST** at checkout.
 
-Start your funded crypto trading journey today — and save 22% while you're at it.
+Start your funded crypto trading journey today — and save 2% while you're at it.
